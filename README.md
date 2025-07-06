@@ -64,7 +64,7 @@ I followed tutorials and guidance from the **[WsCube Tech YouTube Channel](https
 ## 🙋‍♀️ About Me
 
 Hi! I’m **Pratiksha Waghmode**, a data enthusiast passionate about turning raw data into real insights.  
-Let’s connect on [LinkedIn](https://www.linkedin.com/in/pratiksha-waghmode) 🚀
+Let’s connect on [LinkedIn](https://www.linkedin.com/in/pratikshawaghmode) 🚀
 
 ---
 
